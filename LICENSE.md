@@ -1,4 +1,4 @@
-# 
+# Personalizado dex market making bot flujo de trabajo para Mac OS | Premium dex market making bot flujo de trabajo para PC Windows. Con órdenes stop-loss y tamaño de posición — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
